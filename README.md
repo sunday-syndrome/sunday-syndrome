@@ -1,8 +1,8 @@
 - Hi, I’m @sunday-syndrome
-- I’m interested in uncharted 3
+- I’m interested in: uncharted 3
 - I’m currently learning fellan
 - I’m looking to collaborate on
-- How to reach me fellamail
+- How to reach me: privatemessage osu summerdubx
 - Pronouns: thosewhoknow
 - Fun fact: 
 
